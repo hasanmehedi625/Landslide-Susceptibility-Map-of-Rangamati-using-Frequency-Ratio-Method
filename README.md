@@ -1,0 +1,1 @@
+# Landslide-Susceptibility-Map-of-Rangamatiping-using-Frequency-Ratio-Method
